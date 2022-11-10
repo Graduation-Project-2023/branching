@@ -3,5 +3,5 @@ Radwan++
 bassant
 raafat
 bassant 
-steven is not a good leader
+steven is a goood leader
 agreed
